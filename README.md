@@ -1,2 +1,2 @@
 # hello-world
-test repository
+you fucking suck, stop learning to code! you're hopeless
